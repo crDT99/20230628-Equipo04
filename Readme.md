@@ -1,1 +1,1 @@
-Cristian De la Torre - Franco Ortiz - Estefanía Aguas
+Cristian De la Torre - Franco Ortiz - Estefanía Aguas - Gonzalo Acosta
